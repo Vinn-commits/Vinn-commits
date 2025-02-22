@@ -1,5 +1,8 @@
 ![](https://64.media.tumblr.com/178826b3dc477ba2d9654996732787ee/f14a73274c031125-7b/s2048x3072/5e3e436b8a535877f6d59af8523ec96444a9e911.pnj)
-![](https://64.media.tumblr.com/d35109ead6fa5ee7eafae49e31d88e95/d87ad47082fe3c51-0b/s540x810/8e081d9cb3eb032118492ce4455e5083de2add3c.gifv)
+<div align="center">
+  <img src="https://64.media.tumblr.com/d35109ead6fa5ee7eafae49e31d88e95/d87ad47082fe3c51-0b/s540x810/8e081d9cb3eb032118492ce4455e5083de2add3c.gifv">
+</div>
+
 ![](https://64.media.tumblr.com/2077065e303e11d3d03dcb208c539fa7/94bb6a3f9633dfc4-e8/s2048x3072/e766fb400463c5c643a0b43f74255ddee92d435a.pnj)
 <p align="center"><B>Vinn/Vinny/Vin</B></p>
 <p align="center">he/him ⭒ minor ⭒ Lucifer kinnie</p>
