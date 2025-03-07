@@ -5,7 +5,7 @@
 
 ![](https://64.media.tumblr.com/2077065e303e11d3d03dcb208c539fa7/94bb6a3f9633dfc4-e8/s2048x3072/e766fb400463c5c643a0b43f74255ddee92d435a.pnj)
 <p align="center"><B>Vinn/Vinny/Vin</B></p>
-<p align="center">he/him ⭒ minor ⭒ lucifer kinnie ⭒ easily overwhelmed ⭒ usually in cosplay ⭒ lucifer is me ⭒ fawn lover ⭒ :3 || Main ships! ;; Radioapple/Radiostatic,Staticapple and Lucililith!</p>
+<p align="center">he/him ⭒ minor ⭒ lucifer kinnie ⭒ easily overwhelmed ⭒ usually in cosplay ⭒ lucifer is me ⭒ fawn lover ⭒ :3 || Main ships! ;; Radioapple/Radiostatic, Staticapple and Lucililith!</p>
 
 ![](https://64.media.tumblr.com/2077065e303e11d3d03dcb208c539fa7/94bb6a3f9633dfc4-e8/s2048x3072/e766fb400463c5c643a0b43f74255ddee92d435a.pnj)
 ![](https://64.media.tumblr.com/8abaa3ccacc706798ad61a80cf88f5fb/7c286e68eff1a3e7-1e/s2048x3072/106b7ffbae89b682c84f6970a55bb071940c1418.pnj)
